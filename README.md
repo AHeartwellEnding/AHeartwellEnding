@@ -3,10 +3,10 @@
 </p>
 
 <p align="center">
-  the dirtiest you is the cutest
+  the　dirtiest　you　is　the　cutest
 </p>
 
 <p align="center">
-  16 , proship ,
+  16　proship　
   <a href="https://pronouns.cc/@vioIent">about</a>
 </p>
